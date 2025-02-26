@@ -1,1 +1,1 @@
-정세은
+Seeun Jung
