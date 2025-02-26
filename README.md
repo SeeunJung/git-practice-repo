@@ -1,1 +1,1 @@
-Seeun
+Seeun Jung
